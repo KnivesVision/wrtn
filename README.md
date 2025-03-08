@@ -12,4 +12,4 @@ github 까지 찾아오셔서 제 캐챗 이미지에 관심 주셔서 정말 �
 
 앞으로도 노력하겠습니다
 
-- KnivesVision-
+- KnivesVision
